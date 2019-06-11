@@ -1,0 +1,1 @@
+# Ayokmocosafelink.js
